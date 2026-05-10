@@ -1,14 +1,14 @@
-# __**BuriBuriOS**__
+# <span style="color:red">***BuriBuriOS***</span>
 
 ![BuriBuriOS](https://ih1.redbubble.net/image.3458355843.7522/raf,360x360,075,t,fafafa:ca443f4786.jpg)
 
-__**BuriBuriOS**__ is not another pretty Hyprland rice.  
-__**BuriBuriOS**__ is The Art of Purpose itself.  
+***BuriBuriOS*** is not another pretty Hyprland rice.  
+***BuriBuriOS*** is The Art of Purpose itself.  
 
 __It is a digital philosophy manifest.  
 It is an escape route.__  
 
-__**BuriBuriOS**__ is not designed for the masses.  
+***BuriBuriOS*** is not designed for the masses.  
 It is a sanctuary for those who left the Matrix.  
 For minds that crave harmony between beauty and power.
 
