@@ -1,14 +1,14 @@
-# <span style="color:red">***BuriBuriOS***</span>
+# <span style="color:red">***BuriBuri*****Os**</span>
 
 ![BuriBuriOS](https://ih1.redbubble.net/image.3458355843.7522/raf,360x360,075,t,fafafa:ca443f4786.jpg)
 
-***BuriBuriOS*** is not another pretty Hyprland rice.  
-***BuriBuriOS*** is The Art of Purpose itself.  
+***BuriBuri*****Os** is not another pretty Hyprland rice.  
+***BuriBuri*****Os** is The Art of Purpose itself.  
 
 __It is a digital philosophy manifest.  
 It is an escape route.__  
 
-***BuriBuriOS*** is not designed for the masses.  
+***BuriBuri*****Os** is not designed for the masses.  
 It is a sanctuary for those who left the Matrix.  
 For minds that crave harmony between beauty and power.
 
@@ -37,7 +37,7 @@ Here, beauty and function are the same thing.
 **True art is not ornamentation.  
 True art is purpose perfected.**
 
-In __**BuriBuriOS**__,  
+In ***BuriBuri*****Os**,  
 art is not decoration.  
 Art is function perfected.
 
