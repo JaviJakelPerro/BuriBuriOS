@@ -1,6 +1,6 @@
 # BuriBuriOS
 
-![BuriBuriOS](imagen)
+![BuriBuriOS](https://ih1.redbubble.net/image.3458355843.7522/raf,360x360,075,t,fafafa:ca443f4786.jpg)
 
 **BuriBuriOS** is not another pretty Hyprland rice.  
 **BuriBuriOS** is The Art of Purpose itself.  
