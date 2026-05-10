@@ -1,14 +1,14 @@
-# BuriBuriOS
+# __**BuriBuriOS**__
 
 ![BuriBuriOS](https://ih1.redbubble.net/image.3458355843.7522/raf,360x360,075,t,fafafa:ca443f4786.jpg)
 
-**BuriBuriOS** is not another pretty Hyprland rice.  
-**BuriBuriOS** is The Art of Purpose itself.  
+__**BuriBuriOS**__ is not another pretty Hyprland rice.  
+__**BuriBuriOS**__ is The Art of Purpose itself.  
 
-It is a digital philosophy manifest.  
-It is an escape route.  
+__It is a digital philosophy manifest.  
+It is an escape route.__  
 
-BuriBuriOS is not designed for the masses.  
+__**BuriBuriOS**__ is not designed for the masses.  
 It is a sanctuary for those who left the Matrix.  
 For minds that crave harmony between beauty and power.
 
@@ -29,15 +29,15 @@ onto rain-covered streets and drifting cars,
 
 seen through the enchanted eyes
 of a child who still dreams
-of dragons, shimmering machines,
-sakura storms and eternal midnight drives.
+of __dragons__, __shimmering machines__,
+__sakura storms__ and eternal __midnight drives__.
 
 Here, beauty and function are the same thing.
 
-True art is not ornamentation.  
-True art is purpose perfected.
+**True art is not ornamentation.  
+True art is purpose perfected.**
 
-In BuriBuriOS,  
+In __**BuriBuriOS**__,  
 art is not decoration.  
 Art is function perfected.
 
